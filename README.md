@@ -12,4 +12,4 @@ Todas os itens estarão em ordem de forma que fique de fácil acesso para os usu
 
 Segue o link do canal para que possamos realizar essa jornada juntos:
 
-UCyAqCcTkMcKTnwYk2hQfT7g
+https://youtube.com/@felipekuwahara?si=gCwDZC6snVgBLFf2
